@@ -1,1 +1,1 @@
-# Prueba-T-cnica-Ronald-Alexis-Arias-Manrique
+# Prueba-Tecnica-Ronald-Alexis-Arias-Manrique
